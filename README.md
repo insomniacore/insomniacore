@@ -1,16 +1,17 @@
-## Hi there 👋
+## hihi im mony!
 
-<!--
-**insomniacore/insomniacore** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+i may become semi-verbal if im stressed!!
 
-Here are some ideas to get you started:
+you can usually always c+h unless i have something in my name that says otherwise! when if it has nothing you can still c+h.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+you can call me mony, insomnia, or my ponies name!
+
+you can ask me about anything :D
+
+i ocassionally have td but if i do it will be in my name (please keep that in mind)
+
+theirs a lot more info about me on the links on my page !!
+
+PLEASE only use she/her on me !!
+
+im very sensitive so im sorry if i get upset.
