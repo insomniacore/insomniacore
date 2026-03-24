@@ -15,3 +15,5 @@ theirs a lot more info about me on the links on my page !!
 PLEASE only use she/her on me !!
 
 im very sensitive so im sorry if i get upset.
+
+im very annoying omfg bro
