@@ -16,4 +16,4 @@ PLEASE only use she/her on me !!
 
 im very sensitive so im sorry if i get upset.
 
-im very annoying omfg bro
+my vapereon skin got on pinterest bro </3
