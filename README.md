@@ -1,6 +1,6 @@
 ## hihi im mony!
 
-MOST of my socials are @byleraddict
+MOST of my socials are @byleraddict !!
 
 i may become semi-verbal if im stressed or uncomfortable.
 
